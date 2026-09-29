@@ -1,0 +1,2 @@
+# premium-bird-mount-001-bird-specimen-mounting-wire-ar
+Tired of wasting expensive wire on armatures that collapse or distort your bird specimen's natural posture?  This Notion template transforms your chaotic notes into a repeatable, science-based system. It ensures every wire armature you build is anatomically accurate, structurally sound, and perfectly suited to the bird's pose, saving you time, mate
